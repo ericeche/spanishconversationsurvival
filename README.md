@@ -15,7 +15,7 @@
 
 
 ### Spanish Greetings
-![alt text](https://github.com/adam-p/markdown-here/raw/master/src/common/images/icon48.png "Logo Title Text 1")
+![alt text](http://www.droidaddiction.com/spanish1.png "Logo Title Text 1")
 
 
 ### Keeping The Conversation Going: Small Talk
