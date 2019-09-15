@@ -28,17 +28,24 @@
 
 ### Dealing With Problems
 
-![alt text](http://www.droidaddiction.com/spanish4.png "Logo Title Text 1")
+![alt text](http://www.droidaddiction.com/spanish6.png "Logo Title Text 1")
 ### Question Words In Spanish
 
 ![alt text](http://www.droidaddiction.com/spanish5.png "Logo Title Text 1")
+
+Here are some examples of questions that are useful to know:
+
+![alt text](http://www.droidaddiction.com/spanish7.png "Logo Title Text 1")
+
+
 ### Talking About Yourself And Answering Questions
 
-![alt text](http://www.droidaddiction.com/spanish6.png "Logo Title Text 1")
+![alt text](http://www.droidaddiction.com/spanish8.png "Logo Title Text 1")
 
 
 ### Saying Goodbye In Spanish
 
-![alt text](http://www.droidaddiction.com/spanish7.png "Logo Title Text 1")
+![alt text](http://www.droidaddiction.com/spanish8.png "Logo Title Text 1")
+
 
 
