@@ -45,7 +45,7 @@ Here are some examples of questions that are useful to know:
 
 ### Saying Goodbye In Spanish
 
-![alt text](http://www.droidaddiction.com/spanish8.png "Logo Title Text 1")
+![alt text](http://www.droidaddiction.com/spanish9.png "Logo Title Text 1")
 
 
 
